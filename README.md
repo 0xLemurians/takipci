@@ -1,0 +1,2 @@
+# takipci
+başlayalım
